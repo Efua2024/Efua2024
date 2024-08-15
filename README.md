@@ -1,0 +1,4 @@
+- 👋 Hi, my name is Best AIGBE, an expert in data analysis. I have extensive knowledge in using Power BI, SQL, Python and Excel in carrying out various forms of analysis
+- 👀 I’m interested in in Data Analysit/Business Analyst position in any oragnization where I can use my skills in analysis to solve real life problem
+- 💞️ I’m looking forward to collaborate with the existing team to achieve the company overral goals.
+- 📫 How to reach is through phone number: +2348035650162 or E-mail: aigbebest@gmail.com
